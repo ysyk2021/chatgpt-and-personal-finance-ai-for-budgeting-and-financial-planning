@@ -1,5 +1,3 @@
-Factors Affecting Personal Finance Management
-===================================================================================================
 
 In this chapter, we will explore the factors that can affect personal finance management and contribute to the challenges individuals face when managing their finances.
 

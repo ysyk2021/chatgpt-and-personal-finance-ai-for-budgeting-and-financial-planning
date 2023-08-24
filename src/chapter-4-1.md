@@ -1,5 +1,3 @@
-Introduction to AI and Chatbots
-===========================================================================================
 
 In this chapter, we will provide an introduction to AI and chatbots and their role in personal finance management.
 

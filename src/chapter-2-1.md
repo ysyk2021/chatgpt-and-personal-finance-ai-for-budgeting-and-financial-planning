@@ -1,5 +1,3 @@
-Definition of Personal Finance
-=====================================================================
 
 Personal finance refers to the management of an individual's financial resources, including income, expenses, investments, and savings. It involves making informed decisions about how to allocate these resources to achieve financial goals and maintain financial stability.
 

@@ -1,5 +1,3 @@
-How ChatGPT can be used for budgeting and financial planning
-==============================================================================================
 
 In this chapter, we will explore how ChatGPT can be used for budgeting and financial planning. We will discuss the features of ChatGPT that make it an effective tool for managing personal finances, and provide examples of how it can be used to improve financial decision-making.
 

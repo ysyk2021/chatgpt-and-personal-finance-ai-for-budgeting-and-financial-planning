@@ -1,5 +1,3 @@
-Different Aspects of Personal Finance Relevant to ChatGPT
-================================================================================================
 
 In this chapter, we will provide an overview of the basics of personal finance and discuss different aspects of personal finance that are relevant to ChatGPT.
 
