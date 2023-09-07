@@ -10,3 +10,7 @@ We will also explore emerging trends and challenges in personal finance manageme
 Whether you are an individual seeking to improve your personal finances or a financial advisor seeking new tools for managing clients' money, 'ChatGPT and Personal Finance: AI for Budgeting and Financial Planning' offers valuable insights into the future of this dynamic and exciting field.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
